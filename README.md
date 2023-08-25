@@ -1,1 +1,1 @@
-# nataliatsok.works
+# nataliatsok.com
